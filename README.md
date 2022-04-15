@@ -9,3 +9,5 @@
 - My contact in telegram - [CHANNEL LINK](//t.me/typingneo) | [CONTACT LINK](//t.me/Neo_Life24)
 - VK - [LINK](//vk.com/neo_life66)
 - DISCORD - [TiredClone#0801](//discord.com/users/437262793578643466)
+
+
