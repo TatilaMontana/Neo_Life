@@ -6,5 +6,5 @@
 - 17 years old
 - Not alone
 - Trying in programming, ahaha
-- My contact in telegram - [LINK CHANNEL](//t.me/typingneo)
+- My contact in telegram - [CHANNEL LINK](//t.me/typingneo) | [CONTACT LINK](//t.me/Neo_Life24)
 
