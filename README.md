@@ -6,7 +6,7 @@
 - 18 years old
 - Not alone
 - Trying in programming, ahaha
-- **My contact in telegram** - [CHANNEL LINK](//t.me/typingneo) | [CONTACT LINK](//t.me/Neo_Life24)
+- **My contact in telegram** - [CONTACT LINK](//t.me/Neo_Life24)
 - **VK** - [LINK](//vk.com/neo_life66)
 - **DISCORD** - [tiredClone#0801](//discord.com/users/437262793578643466)
 
